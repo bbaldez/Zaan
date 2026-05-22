@@ -21,7 +21,7 @@ Het deel van Oostzaan dat zich nabij de dam in de Zaan bevond, werd Oostzaandam 
 
 ![](zaanse-wapens.jpg)
 
->Links het wapen van Oostzaan. Een greep (landbouwattribuut) spietst drie objecten. Mij is op mijn Oostzaanse lagere school geleerd dat het drie veenplaggen zijn. In werkelijkheid is het als met de meeste dingen: men weet het eigenlijk niet. Het wapen van Oostzaan is eeuwenoud.
+>Links het geel-met-blauwe wapen van Oostzaan. Een greep (landbouwattribuut) spietst drie objecten. Mij is op mijn Oostzaanse lagere school geleerd dat het drie veenplaggen zijn. In werkelijkheid is het als met de meeste dingen: men weet het eigenlijk niet. Het wapen van Oostzaan is eeuwenoud.
 >
 > Het wapen van de Gemeente Zaanstad (rechts) wordt geflankeerd door twee blije walvissen. Dit weten we wél want Zaanstad en zijn wapen zijn nog erg jong. In 1974 werd Zaanstad gevormd door samenvoeging van Zaandam met nog zes gemeentes. Die liggen allemaal op de westelijke Zaanoever en zijn voor ons verhaal dus van geen belang, net als de vier leeuwen. Ten oosten van de Zaan heb je geen leeuwen.
 
@@ -69,6 +69,39 @@ https://www.heerenhuis.nl/
 We gaan een rondje van 15,8 kilometer lopen, onderverdeeld in drie etappes, onderbroken door horecamomenten. Alle gezichten van de Polder Oostzaan komen aan bod, van het industrieel erfgoed langs de Zaan tot het natuurschoon van het Oostzanerveld. We doen ook de Kalverpolder aan, met zijn wereldberoemde schans.
 
 Helaas ontkomen we er niet aan om ook een half uurtje door de inspiratieloze buitenwijken van Zaandam te wandelen; we moeten nu eenmaal het rondje compleet maken. Op dat deel van het traject komen we wél het gebouw tegen waar ik mijn middelbareschoolopleiding volgde (het Blaise Pascalcollege), inclusief het park waar we in de pauzes rondhingen. Mijn woonadres uit de jaren zeventig en tachtig gaan we zien vanuit de verte, als we op het viaduct over de spoorlijn Zaandam-Hoorn uitzien over het Oostzanerveld.
+
+## Hoe ver  is het nog?
+
+Voor wie zich afvraagt hoe ver het nog is, volgen hier enkele routepunten.
+
+|routepunt|het is nog...|
+|-|-|
+Het Heerenhuis | 15,5 km |
+de Hercules | 15 km |
+De Lassie en De Adelaar (overzijde)| 13 km |
+de Bonte Hen | 12,5 km
+Duyvis | 11,5 km
+Haaldersbroek | 10,5 km
+eetcafé 't Kalf | 10 km
+onderdoorgang Coentunnelweg | 9 km
+onderdoorgang spoorlijn Enkhuizen | 8 km
+Zwaardemaker | 7 km
+Verkade (overzijde) | 6,5 km
+de Dam | 5,5 km
+de Gouw | 4,5 km
+Blaise Pascalcollege | 3,5 km
+onderdoorgang Coentunnelweg | 2,5 km
+overgang spoorlijn Enkhuizen | 1,5 km
+De Wijdewormer | 0,5 km
+Het Heerenhuis | 0 km
+
+## Welke niet te missen Zaanse monumenten gaan we missen?
+
+Zeepziederij De Adelaar (spanwijdte: 6,75 meter) en de Lassie-silo laten we aan het begin van de wandeling rechts liggen. Ze zijn alleen aan de horizon te bewonderen. Als troost hierbij twee duidelijke foto's.
+
+![](de-adelaar.jpg)
+![](lassie.jpg)
+
 
 # Historie
 
