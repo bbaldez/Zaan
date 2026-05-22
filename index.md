@@ -78,12 +78,13 @@ Voor wie zich afvraagt hoe ver het nog is, volgen hier enkele routepunten.
 |-|-|
 Het Heerenhuis | 15,5 km |
 de Hercules | 15 km |
-De Lassie en De Adelaar (overzijde)| 13 km |
+Lassie, De Adelaar (overzijde)| 13 km |
 de Bonte Hen | 12,5 km
 Duyvis | 11,5 km
 Haaldersbroek | 10,5 km
 eetcafé 't Kalf | 10 km
 onderdoorgang Coentunnelweg | 9 km
+Honig (overzijde) | 8,3 km
 onderdoorgang spoorlijn Enkhuizen | 8 km
 Zwaardemaker | 7 km
 Verkade (overzijde) | 6,5 km
@@ -91,7 +92,7 @@ de Dam | 5,5 km
 de Gouw | 4,5 km
 Blaise Pascalcollege | 3,5 km
 onderdoorgang Coentunnelweg | 2,5 km
-overgang spoorlijn Enkhuizen | 1,5 km
+overheengang spoorlijn Enkhuizen | 1,5 km
 De Wijdewormer | 0,5 km
 Het Heerenhuis | 0 km
 
