@@ -84,7 +84,6 @@ Duyvis | 11,5 km
 Haaldersbroek | 10,5 km
 eetcafé 't Kalf | 10 km
 onderdoorgang Coentunnelweg | 9 km
-Honig (overzijde) | 8,3 km
 onderdoorgang spoorlijn Enkhuizen | 8 km
 Zwaardemaker | 7 km
 Verkade (overzijde) | 6,5 km
@@ -101,8 +100,12 @@ Het Heerenhuis | 0 km
 Zeepziederij De Adelaar (spanwijdte: 6,75 meter) en de Lassie-silo laten we aan het begin van de wandeling rechts liggen. Ze zijn alleen aan de horizon te bewonderen. Als troost hierbij twee duidelijke foto's.
 
 ![](de-adelaar.jpg)
+
+> Zeepziederij De Adelaar
+
 ![](lassie.jpg)
 
+> Rijstpellerij Mercurius, vanaf 1954 fabrikant van _Lassie_.
 
 # Historie
 
@@ -124,7 +127,7 @@ De molens waren al snel geen drijvende exemplaren meer, maar grotere constructie
 
 Behalve voor het zagen van hout was de krukas van Cornelis Corneliszoon ook geschikt om grote oliemolens te ontwikkelen. Die stampten lijn- en raapzaad om beschermende olie en verf te produceren voor de scheepsbouw, die in Zaandam inmiddels ook floreerde. Samen met de precies op maat gezaagde scheepsonderdelen uit de houtzaagmolens was het mogelijk om middels een lopendebandlogistiek veel sneller schepen te produceren. De unieke _Groenlandvaarder_ bijvoorbeeld -- een ijsbreker die aan de basis stond van een volgend tijdperk in de Zaanse geschiedenis: de walvisvaart.
 
-Door technische vernieuwing werden molens ook geschikt gemaakt voor het produceren van hoogwaardig papier, het kloppen van hennep, en de productie van levensmiddelen (rijst pellen, cacao verpoederen, mosterd malen). Dit leidde, toen de stoomrevolutie de windrevolutie overvleugelde, tot de fabrieken van Duyvis, Lassie, Verkade en Honig, tot de Zaanse mosterd en tot de Zaanse mayonaise-in-een-tube. De Oostzaander kruidenier Albert Heijn ging hier ook al snel zijn eigen levensmiddelen produceren en de Zaanse cacaoverwerkende industrie groeide uit tot de grootste ter wereld.
+Door technische vernieuwing werden molens ook geschikt gemaakt voor het produceren van hoogwaardig papier, het kloppen van hennep, en de productie van levensmiddelen (rijst pellen, cacao verpoederen, mosterd malen). Dit leidde, toen de stoomrevolutie de windrevolutie overvleugelde, tot de fabrieken van Duyvis, Lassie, Verkade en Honig (tegenwoordig: Tate & Lyle), tot de Zaanse mosterd en tot de Zaanse mayonaise-in-een-tube. De Oostzaander kruidenier Albert Heijn ging hier ook al snel zijn eigen levensmiddelen produceren en de Zaanse cacaoverwerkende industrie groeide uit tot de grootste ter wereld.
 
 ![](hollander.jpg)
 
