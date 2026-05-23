@@ -66,9 +66,9 @@ https://www.heerenhuis.nl/
 
 ## Moeten we ver?
 
-We gaan een rondje van 15,8 kilometer lopen, onderverdeeld in drie etappes, onderbroken door horecamomenten. Alle gezichten van de Polder Oostzaan komen aan bod, van het industrieel erfgoed langs de Zaan tot het natuurschoon van het Oostzanerveld. We doen ook de Kalverpolder aan, met zijn wereldberoemde schans.
+We gaan een rondje van 15,5 kilometer lopen, onderverdeeld in drie etappes, onderbroken door horecamomenten. Alle gezichten van de Polder Oostzaan komen aan bod, van het industrieel erfgoed langs de Zaan tot het natuurschoon van het Oostzanerveld. We doen ook de Kalverpolder aan, met zijn wereldberoemde schans.
 
-Helaas ontkomen we er niet aan om ook een half uurtje door de inspiratieloze buitenwijken van Zaandam te wandelen; we moeten nu eenmaal het rondje compleet maken. Op dat deel van het traject komen we wél het gebouw tegen waar ik mijn middelbareschoolopleiding volgde (het Blaise Pascalcollege), inclusief het park waar we in de pauzes rondhingen. Mijn woonadres uit de jaren zeventig en tachtig gaan we zien vanuit de verte, als we op het viaduct over de spoorlijn Zaandam-Hoorn uitzien over het Oostzanerveld.
+Helaas ontkomen we er niet aan om ook een half uurtje door de inspiratieloze buitenwijken van Zaandam te wandelen; we moeten nu eenmaal het rondje compleet maken. Op dat deel van het traject komen we wél het gebouw tegen waar ik mijn middelbareschoolopleiding volgde (het Blaise Pascalcollege), inclusief het park waar we in de pauzes rondhingen. Mijn woonadres uit de jaren zeventig en tachtig gaan we zien vanuit de verte, als we op het viaduct over de spoorlijn Zaandam-Enkhuizen uitzien over het Oostzanerveld.
 
 ## Hoe ver  is het nog?
 
@@ -78,7 +78,7 @@ Voor wie zich afvraagt hoe ver het nog is, volgen hier enkele routepunten.
 |-|-|
 Het Heerenhuis | 15,5 km |
 de Hercules | 15 km |
-Lassie, De Adelaar (overzijde)| 13 km |
+Lassie en Adelaar (overzijde)| 13 km |
 de Bonte Hen | 12,5 km
 Duyvis | 11,5 km
 Haaldersbroek | 10,5 km
@@ -101,13 +101,35 @@ Zeepziederij De Adelaar (spanwijdte: 6,75 meter) en de Lassie-silo laten we aan 
 
 ![](de-adelaar.jpg)
 
-> Zeepziederij De Adelaar
+> Zeepziederij De Adelaar, Wormerveer
 
 ![](lassie.jpg)
 
-> Rijstpellerij Mercurius, vanaf 1954 fabrikant van _Lassie_.
+> Rijstpellerij Mercurius in Wormer, vanaf 1954 fabrikant van _Lassie_.
 
 # Historie
+
+## De Slag bij de Kalverschans
+
+Mochten wij tijdens onze wandeling kanonschoten horen, dan is dat waarschijnlijk ter herdenking van de Slag bij de Kalverschans. Dat zit zo:
+
+In 1574, tijdens de Opstand tegen de Spanjaarden, lag de Zaan strategisch tussen het Spaans gezinde Amsterdam en het recentelijk door de opstandelingen veroverde Alkmaar ('Bij Alkmaar begint de victorie!').
+
+De Spanjaarden waren erop gebrand om Alkmaar te heroveren, dus veranderden de oevers van de Zaan in een gebied van militair belang. Langs de rivier bouwden zowel Spanjaarden als Opstandelingen talrijke verdedigingsschansen.
+
+![](schans.jpg)
+
+> Van de diverse Zaanse schansen is niets over. Ter illustratie daarom deze foto van de Schans bij Ouddorp, Zuid-Holland.
+
+De Spanjaarden veroverden alle vijandelijke schansen, met uitzondering van de op de hoek van de Kalverpolder gelegen Kalverschans. Op Tweede Pinksterdag 1574 behaalden de op deze Kalverschans gelegerde Opstandelingen onder leiding van Diederik Sonoy een glansrijke overwinning.
+
+Het verhaal gaat dat 800 Spanjaarden nabij Wormer gevangen werden genomen, naar de Zuiderzee vervoerd, en daar verzopen.
+
+Daags na Pinksteren, op de terugweg naar de Zaan vierden de soldaten van Sonoy hun overwinning in de herbergen van Purmerend -- een niet ver van de Zaanstreek gelegen dorp dat tot in mijn vroege jeugd in de hele regio bekend stond om zijn dinsdagse veemarkt.
+
+Deze, waarschijnlijk fictieve, nasleep van de Slag bij de Kalverschans wordt in de Zaanstreek jaarlijks herdacht op de dag na Pinksteren ('Pinksterdrie'). Onder de noemer 'bokkie kopen' reisden de Zaankanters vroeger op deze enige vrije dinsdag van het jaar naar Purmerend met de bedoeling om daar een geit of bok aan te schaffen maar vooral om zich, net als de soldaten van weleer, te bezatten.
+
+Zelf leerde ik Pinksterdrie kennen als een extra vrije schooldag waarvan geen enkele Oostzaner mij de herkomst kon uitleggen. De belangrijkste feestdag in het Oostzaan van de jaren 70 was 1 mei. Deze populariteit van het socialisme in de Zaanstreek houdt rechtstreeks verband met de Industriële Revolutie.
 
 ## De Industriële Revolutie
 
