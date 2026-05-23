@@ -113,7 +113,7 @@ Zeepziederij De Adelaar (spanwijdte: 6,75 meter) en de Lassie-silo laten we aan 
 
 Mochten wij tijdens onze wandeling kanonschoten horen, dan is dat waarschijnlijk ter herdenking van de Slag bij de Kalverschans. Dat zit zo:
 
-In 1574, tijdens de Opstand tegen de Spanjaarden, lag de Zaan strategisch tussen het Spaans gezinde Amsterdam en het recentelijk door de opstandelingen veroverde Alkmaar ('Bij Alkmaar begint de victorie!').
+In 1574, tijdens de Opstand tegen de Spanjaarden, lag de Zaan strategisch tussen het Spaans gezinde Amsterdam en het recentelijk door de Opstandelingen veroverde Alkmaar ('Bij Alkmaar begint de victorie!').
 
 De Spanjaarden waren erop gebrand om Alkmaar te heroveren, dus veranderden de oevers van de Zaan in een gebied van militair belang. Langs de rivier bouwden zowel Spanjaarden als Opstandelingen talrijke verdedigingsschansen.
 
@@ -123,11 +123,11 @@ De Spanjaarden waren erop gebrand om Alkmaar te heroveren, dus veranderden de oe
 
 De Spanjaarden veroverden alle vijandelijke schansen, met uitzondering van de op de hoek van de Kalverpolder gelegen Kalverschans. Op Tweede Pinksterdag 1574 behaalden de op deze Kalverschans gelegerde Opstandelingen onder leiding van Diederik Sonoy een glansrijke overwinning.
 
-Het verhaal gaat dat 800 Spanjaarden nabij Wormer gevangen werden genomen, naar de Zuiderzee vervoerd, en daar verzopen.
+Het verhaal gaat dat daarbij 800 Spanjaarden nabij Wormer gevangen werden genomen, naar de Zuiderzee vervoerd, en daar verzopen.
 
-Daags na Pinksteren, op de terugweg naar de Zaan vierden de soldaten van Sonoy hun overwinning in de herbergen van Purmerend -- een niet ver van de Zaanstreek gelegen dorp dat tot in mijn vroege jeugd in de hele regio bekend stond om zijn dinsdagse veemarkt.
+Daags na Pinksteren, op de terugweg naar de Zaan zouden de soldaten van Sonoy hun overwinning hebben gevierd in de herbergen van Purmerend -- een niet ver van de Zaanstreek gelegen dorp dat tot in mijn vroege jeugd in de hele regio bekend stond om zijn dinsdagse veemarkt.
 
-Deze, waarschijnlijk fictieve, nasleep van de Slag bij de Kalverschans wordt in de Zaanstreek jaarlijks herdacht op de dag na Pinksteren ('Pinksterdrie'). Onder de noemer 'bokkie kopen' reisden de Zaankanters vroeger op deze enige vrije dinsdag van het jaar naar Purmerend met de bedoeling om daar een geit of bok aan te schaffen maar vooral om zich, net als de soldaten van weleer, te bezatten.
+Deze, waarschijnlijk fictieve, nasleep van de allerminst fictieve Slag bij de Kalverschans wordt in de Zaanstreek jaarlijks herdacht op de dag na Pinksteren ('Pinksterdrie'). Onder de noemer 'bokkie kopen' reisden de Zaankanters vroeger op deze enige vrije dinsdag van het jaar naar Purmerend met de bedoeling om daar een geit of bok aan te schaffen maar vooral om zich, net als de soldaten van weleer, te bezatten.
 
 Zelf leerde ik Pinksterdrie kennen als een extra vrije schooldag waarvan geen enkele Oostzaner mij de herkomst kon uitleggen. De belangrijkste feestdag in het Oostzaan van de jaren 70 was 1 mei. Deze populariteit van het socialisme in de Zaanstreek houdt rechtstreeks verband met de Industriële Revolutie.
 
