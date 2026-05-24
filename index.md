@@ -72,28 +72,28 @@ Helaas ontkomen we er niet aan om ook een half uurtje door de inspiratieloze bui
 
 ## Hoe ver  is het nog?
 
-Voor wie zich afvraagt hoe ver het nog is, volgen hier enkele routepunten.
+Voor wie zich afvraagt hoe ver het nog is, volgen hier enkele routepunten. Horecamomenten zijn **vetgedrukt**. Op 3 momenten is het mogelijk om bij nader inzien te kiezen voor een slechtere, ingekorte route terug naar het Heerenhuis. Dat wordt in de derde kolom toegelicht.
 
-|routepunt|het is nog...|
-|-|-|
-Het Heerenhuis | 15,5 km |
+|routepunt|het is nog...|ingekort
+|-|-|-|
+**Het Heerenhuis** | **15,5 km** |
 de Hercules | 15 km |
 Lassie en Adelaar (overzijde)| 13 km |
 de Bonte Hen | 12,5 km
 Duyvis | 11,5 km
-Haaldersbroek | 10,5 km
-eetcafé 't Kalf | 10 km
-onderdoorgang Coentunnelweg | 9 km
+Haaldersbroek | 10,5 km | 1 km via Braaksloot
+**eetcafé 't Kalf** | **10 km**
+onderdoorgang Coentunnelweg | 9 km | 4,5 km via Kogerveld
 onderdoorgang spoorlijn Enkhuizen | 8 km
-Zwaardemaker | 7 km
+Zwaardemaker | 7 km | 4,5 km via Blaise Pascalcollege
 Verkade (overzijde) | 6,5 km
-de Dam | 5,5 km
+**de Dam** | **5,5 km**
 de Gouw | 4,5 km
 Blaise Pascalcollege | 3,5 km
-onderdoorgang Coentunnelweg | 2,5 km
+**onderdoorgang Coentunnelweg** | **2,5 km**
 overheengang spoorlijn Enkhuizen | 1,5 km
 De Wijdewormer | 0,5 km
-Het Heerenhuis | 0 km
+**Het Heerenhuis** | **0 km**
 
 ## Welke niet te missen Zaanse monumenten gaan we missen?
 
